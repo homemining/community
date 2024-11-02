@@ -1,0 +1,2 @@
+# community
+Home Mining community 
